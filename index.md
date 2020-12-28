@@ -1,3 +1,7 @@
 # Welcome to my blog
 
-I'm glad you are here. I plan to talk about ...
+CV
+Publications
+Work in progress
+Resources
+Health system consulting
